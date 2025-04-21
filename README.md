@@ -1,1 +1,0 @@
-# Collective-Thinking-Economy-CTE
